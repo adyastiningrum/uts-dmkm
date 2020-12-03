@@ -1,3 +1,0 @@
-# uts-dmkm
-
-Tugas responsi
